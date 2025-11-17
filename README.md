@@ -5,3 +5,4 @@ traditional chess is boring but our app is fun
 healthy way to compete and grow as a chess player
 chess learning through comprahensive and easy way
 non commit changes
+pawn this thing
