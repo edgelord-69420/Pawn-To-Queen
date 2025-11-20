@@ -6,3 +6,5 @@ healthy way to compete and grow as a chess player
 chess learning through comprahensive and easy way
 non commit changes
 pawn this thing
+jhzk zkhucv ukzbcxhk uczbc kz ucbzi szvkzx kzi zsi vbcjh vvzkh
+kzvjchz kzkjvhkx zjvhkjz hkjzhvkjz
